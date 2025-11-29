@@ -69,6 +69,3 @@ Project Management: MS Project, Visio.
 --------------------------------------------------------------------------------
 ## Connect
 I am actively seeking opportunities to leverage my diverse skill set and passion for information management and digital transformation to contribute to meaningful projects.
-- Email: jesspietsch@outlook.com
-- LinkedIn: linkedin.com/in/jesspietsch
-- Website: www.jessicapietsch.com

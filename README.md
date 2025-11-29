@@ -7,6 +7,7 @@ My work focuses on digital preservation and making personal data, records, and m
 
 --------------------------------------------------------------------------------
 Key Expertise & Skills
+
 • Information Management & GLAM Sector Leadership:
     ◦ Accredited Archivist, Librarian, and Recordkeeper.
     ◦ Holds a Master of Information Management from Curtin University, with a thesis on digital volunteers in state libraries.
